@@ -1,3 +1,4 @@
 ### Hi👋🏻
 
-![Sfondo](https://github.com/DavideGenovese/DavideGenovese/assets/157692968/a0b31e76-69b9-4ef7-9dfa-3122eb2d5fc3)
+![Github sfondo](https://github.com/DavideGenovese/DavideGenovese/assets/157692968/948f5fbe-2012-4d4b-931f-95db22e7d300)
+
